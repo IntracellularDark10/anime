@@ -7,6 +7,11 @@ Yes, this contains all my background images.
 I am going to try to start adding sources.  A lot of these would take me
 forever to find the sources, so all sources are added post my realization.
 
+
+
+# P.S
+Uploading some funny wallpapers
+
 # Cites
 [powder.jpg](https://www.inprnt.com/gallery/nezuminata)
 [ThePrimeagen.jepg](https://twitter.com/PhunToken/status/1508883727316836356)
